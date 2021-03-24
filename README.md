@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @AlyssaCheng417
 - 👀 I’m interested in Fashion Design, Fiber & Material studies, and art & tech.
-- 🌱 I’m currently learning to code
+- 🌱 I’m currently learning creative coding
 - 📫 How to reach me ... chenghong2018@163.com
